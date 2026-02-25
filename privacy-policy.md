@@ -66,4 +66,4 @@ We may update this privacy policy from time to time. Any changes will be reflect
 
 ## Contact
 
-If you have questions about this privacy policy, please use the Send Feedback option in the app's Settings or contact us through the App Store listing.
+If you have questions about this privacy policy, please use the Send Feedback option in the app's Settings or contact us at doniberger@gmail.com .
